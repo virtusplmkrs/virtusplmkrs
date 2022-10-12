@@ -2,7 +2,7 @@
 - 💬 estou me formando em Tecnico em Mecatrônica, Senai e Licenciatura em Matemática, Universidade Estácio.
 - virtusplmkrs é um repositório ✨ special ✨, é onde compartilho de minhas esperiências e as guardo como referências.
 - 👀 Sou interessado em tecnologia em geral,
-- 🌱 principalmente as que envolvem ao Mundo Agro e Ecologico.
+- 🌱 principalmente as que envolvem o Agro e Ecologia.
 - 💞️ Também AMO maquinas, programação, AI e muito mais....
 - 📫 Vamos manter contato para troca de experiências ...
 <hr/>
