@@ -1,5 +1,6 @@
 - 😄 Olá, sou o Alexandre Yuri.
-- virtusplmkrs é um repositório ✨ special ✨, é onde compartilho de minhas esperiências e a guardo como referências.
+- 💬 estou me formando em Tecnico em Mecatrônica, Senai e Licenciatura em Matemática, Universidade Estácio.
+- virtusplmkrs é um repositório ✨ special ✨, é onde compartilho de minhas esperiências e as guardo como referências.
 - 👀 Sou interessado em tecnologia em geral,
 - 🌱 principalmente as que envolvem ao Mundo Agro e Ecologico.
 - 💞️ Também AMO maquinas, programação, AI e muito mais....
