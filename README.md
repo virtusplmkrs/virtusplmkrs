@@ -1,5 +1,5 @@
 - 😄 Olá, sou o Alexandre Yuri.
-- 💬 estou me formando em Tecnico em Mecatrônica, Senai e Licenciatura em Matemática, Universidade Estácio.
+- 💬 Sou Tecnico em Mecatrônica formado pelo Senai e estou me Graduando em Matemática, Universidade Estácio.
 - virtusplmkrs é um repositório ✨ special ✨, é onde compartilho de minhas esperiências e as guardo como referências.
 - 👀 Sou interessado em tecnologia em geral,
 - 🌱 principalmente as que envolvem o Agro e Ecologia.
